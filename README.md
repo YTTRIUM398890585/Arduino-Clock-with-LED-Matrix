@@ -16,4 +16,7 @@ Features:
       5) other static images
 
 
+link to pics and vids: https://imgur.com/gallery/9VtyfxA
+
+
 
